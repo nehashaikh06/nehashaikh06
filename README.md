@@ -12,7 +12,6 @@
 
 
 
-### Connect with me:
 
 
 
